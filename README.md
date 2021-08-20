@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shodoople
-- 👀 I’m interested in ... Coding
+- 👀 I’m interested in ... game developing
 - 🌱 I’m currently learning ... To Make Games
 - 💞️ I’m looking to collaborate on ... Gaming
 - 📫 How to reach me ... Twitter: @Shodoople Discord: Shodoople#0001
